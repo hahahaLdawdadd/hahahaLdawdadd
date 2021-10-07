@@ -1,0 +1,3 @@
+- 👋 Hi, I'm znn
+- 👀 I'm interested in technology and discord functions.
+- 😅 Every support is welcomed
